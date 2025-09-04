@@ -1,2 +1,1 @@
-# https://media.discordapp.net/attachments/1166010425159196673/1413146310529253477/R_1.gif?ex=68bade8f&is=68b98d0f&hm=8d3a33bca36492166db2c5eb527d0d6d33fc245d1979622c094ece708d8457e1&=
-zz
+
