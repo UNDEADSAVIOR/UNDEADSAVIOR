@@ -5,7 +5,7 @@
 
 
 
-![IMG_5476](https://github.com/user-attachments/assets/d2035a97-5f25-4855-9f8a-1e43fecbb3d8) HII I'M GHOST!! I'm a hardcore twd fan who is rlly into zombie shit:3 ![IMG_5476](https://github.com/user-attachments/assets/d2035a97-5f25-4855-9f8a-1e43fecbb3d8)
+![IMG_5476](https://github.com/user-attachments/assets/d2035a97-5f25-4855-9f8a-1e43fecbb3d8) HII I'M GHOST!! I'm a hardcore twd fan who is rlly into zombie shit:3 (also GTA V particularly but whatever) ![IMG_5476](https://github.com/user-attachments/assets/d2035a97-5f25-4855-9f8a-1e43fecbb3d8)
 
 
 
