@@ -39,7 +39,8 @@
 
 YOU  **MAY** bother me when I'm alone, cuddle + hugs are fine.
 
-![IMG_5475](https://github.com/user-attachments/assets/9c3f1e1e-a11f-40e0-bcbf-02d4c8ded145) ![IMG_8490](https://github.com/user-attachments/assets/ed8ec482-bc4e-46fa-9978-126e6baf9de2) ![IMG_8492](https://github.com/user-attachments/assets/ca6a9e30-e9ec-4ec8-957b-4c3c46dca4cc) <img width="98" height="55" alt="IMG_8493" src="https://github.com/user-attachments/assets/52d8c411-842f-4a62-b382-e51b2138c368" /> <img width="110" height="60" alt="IMG_5469" src="https://github.com/user-attachments/assets/ff94e467-2714-4693-8054-4005a9d35e14" /> ![IMG_8489](https://github.com/user-attachments/assets/ba90d8c1-b9f0-4ba6-a9d4-25f6877cf549)<img width="100" height="350" alt="tumblr_bd97aa510ac3d5f48efc9086aeb02150_3cee7b53_1280" src="https://github.com/user-attachments/assets/594613d9-967b-465b-9c08-80e90b5ab377" />
+![IMG_5475](https://github.com/user-attachments/assets/9c3f1e1e-a11f-40e0-bcbf-02d4c8ded145) ![IMG_8490](https://github.com/user-attachments/assets/ed8ec482-bc4e-46fa-9978-126e6baf9de2) ![IMG_8492](https://github.com/user-attachments/assets/ca6a9e30-e9ec-4ec8-957b-4c3c46dca4cc) <img width="98" height="55" alt="IMG_8493" src="https://github.com/user-attachments/assets/52d8c411-842f-4a62-b382-e51b2138c368" /> <img width="110" height="60" alt="IMG_5469" src="https://github.com/user-attachments/assets/ff94e467-2714-4693-8054-4005a9d35e14" /> ![IMG_8489](https://github.com/user-attachments/assets/ba90d8c1-b9f0-4ba6-a9d4-25f6877cf549)<img width="100" height="350" alt="tumblr_bd97aa510ac3d5f48efc9086aeb02150_3cee7b53_1280" src="https://github.com/user-attachments/assets/594613d9-967b-465b-9c08-80e90b5ab377" /><img width="101" height="57" alt="tumblr_43caeb1c38eeac050b84242cf8f38a69_f3f615fe_250" src="https://github.com/user-attachments/assets/829f5938-1693-4d29-86a5-beda5ef3d76f" />
+
 
 
 
