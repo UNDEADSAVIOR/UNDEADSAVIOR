@@ -54,7 +54,7 @@ YOU  **MAY** bother or rp with me when I'm alone:3, cuddle + hugs are fine.
 
 
 
-
+some stamps and stickers by zresp on tumblr^.^
 
 
 
