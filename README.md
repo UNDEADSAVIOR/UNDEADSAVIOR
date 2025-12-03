@@ -1,6 +1,7 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=316hhcg2axzhkmiogqhbddaacaye&cover_image=true&theme=novatorem&show_offline=true&background_color=6c008a&interchange=false&profanity=false&bar_color=000000&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=316hhcg2axzhkmiogqhbddaacaye&redirect=true)
 
 
+                           𝔳𝔬𝔵/𝔤𝔥𝔬𝔰𝔱/𝔬𝔴𝔩 
 ![tumblr_8bb7e7866332aa69b7c5a68b3295d834_d7d8561a_1280](https://github.com/user-attachments/assets/bbc45fac-34af-4ab3-9b25-ba25092fff37)
 
 
