@@ -1,12 +1,12 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=316hhcg2axzhkmiogqhbddaacaye&cover_image=true&theme=novatorem&show_offline=true&background_color=6c008a&interchange=false&profanity=false&bar_color=000000&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=316hhcg2axzhkmiogqhbddaacaye&redirect=true)
 
 
-                
+<img width="50" height="100" alt="tumblr_d315972c0ddc611b4760cbdba5f9b881_efd6f1e3_2048" src="https://github.com/user-attachments/assets/3f26030f-5897-41ba-9070-92f9e2883e25" /> ![tumblr_53063c2d6039ffe68f14ebdd9ce0ca9f_a0e05746_75](https://github.com/user-attachments/assets/4c47ee91-ab51-4d61-8b46-3e2e46a9b792)  "𝓘'𝓜 𝓐 𝓕𝓤𝓒𝓚𝓘𝓝𝓖 𝓖𝓞𝓓!"
+ 
 ![tumblr_8bb7e7866332aa69b7c5a68b3295d834_d7d8561a_1280](https://github.com/user-attachments/assets/bbc45fac-34af-4ab3-9b25-ba25092fff37)
 
 
-  
-
+ <a href="https://undeadsavior.atabook.org/" target="_blank">𝔞𝔱𝔞</a> <a href="https://barbedwiree.straw.page/" target="_blank">𝔰𝔱𝔯𝔞𝔴𝔭𝔞𝔤𝔢</a> <a href="https://en.pronouns.page/@ghostonzaza" target="_blank">𝖕𝖗𝖔𝖓𝖔𝖚𝖓𝖘</a>
 
 ![tumblr_ee07fbf05f19bbf862cb5acf200bd01f_6a2b74ea_100](https://github.com/user-attachments/assets/5fac0393-1032-433c-90e8-01d867446abd)
 <img width="99" height="56" alt="tumblr_df4f194c01d12c8a9ad89b3d1bd6de14_7c8d85fe_100" src="https://github.com/user-attachments/assets/b4172d6d-0cd5-42a8-8dbd-b5cc622e6497" /><img width="100" height="126" alt="tumblr_4f268352449264a0c86caff22323ad46_e9f12844_250" src="https://github.com/user-attachments/assets/6f3cc69e-99cb-425a-baf5-70d05675f540" />![tumblr_d1e660f88c960f8e773fe5766413941b_5c0bfbc2_100](https://github.com/user-attachments/assets/cdd63f11-8b7c-43c7-874f-68bf55365553)
@@ -19,10 +19,7 @@
 
 
 
-art above and some stamps and stickers by zresp and vampireaxel on tumblr^.^
+art above and some stamps and stickers by zresp and vampireaxel and doushitemacaron on tumblr^.^
 
 
-
-
-![IMG_5470](https://github.com/user-attachments/assets/0290833c-11ee-4eab-9eae-dee8478c18ce)
 
